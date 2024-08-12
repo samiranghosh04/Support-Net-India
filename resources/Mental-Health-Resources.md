@@ -1,4 +1,4 @@
-Note- As of 28-05-2024 1:41 a.m  (IST) this still needs verification. Please proceed with caution.
+## Verification maybe needed. Please proceed with caution
 
 <br><br><br> <hr>
 
